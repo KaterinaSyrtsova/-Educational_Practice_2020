@@ -1,1 +1,1 @@
-# -Educational_Practice_2020
+# Educational_Practice_2020
